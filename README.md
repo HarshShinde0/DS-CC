@@ -1,2 +1,2 @@
 # DS-CC
-Ex 7,8,9 will Add Soon..
+ALL OUTPUTS Ex1-10
